@@ -1,0 +1,2 @@
+- 👋 Ola, eu sou Yasmim-@mimsaydutra
+- 👀 Estou interessada em aprender novas linguagens e desenvolver sistemas uteis e de importancia significativa para a sociedade
